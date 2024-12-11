@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with individuals who are innovate and free thinkers
 - 📫 How to reach me: discord
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm trying out new passions I find interesting and this is one of them hehe
+- ⚡ Fun fact: I'm trying out new passions that I find interesting and this is one of them hehe
 
 <!---
 kylinee25/kylinee25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
